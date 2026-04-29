@@ -1,4 +1,4 @@
-
+advanced re:rangers x Script offers the most advanced re:rangers x Script, with infinite resources and auto-heal. Perfect for dominating any match.
 
 
 
